@@ -1,4 +1,4 @@
-site_name: Lorem
+site_name: IntrLinkd
 nav:
     - Home: index.md
     - Blog: blog.md
