@@ -26,9 +26,7 @@ In the issue of culture, while it is true that people of different ancentories m
 
 Japanese culture, and many other cultures, valued the ancestors, families, and modesty. Many collectivistic cultures value families, ancestry, and history. Many cultures that have been categorized as animistic, i.e. worshiped the spirits whether they were ancestors, gods, or other types of spirits, have traditional dances or rituals. And up until the enlightenment, there quite probably were no cultures that denied the existence of the spiritual, which means that the heart of all cultures was the worship and honor of something, and a value system that fit the worship. 
 
-Jesus did not come to open the doors of Heaven so as to destroy the roman culture, even though it was incompatible with the Truth. 
-
-** {Finish section by rebuking the war of the cultures} **
+Jesus did not come to open the doors of Heaven by means of dismantling the evil roman empire along with its hateful, greedy, lustful, vengeful, discriminatory, and just plain evil culture, even though it was grossly incompatible with the Truth. Jesus opened the doors of justice through repentance, forgiveness, reconciliation, peace, prosperity, hope, sacrifice, and humility by means of his life and sacrificial death. You have forgotten that, or at least persuaded by the world to diminish and down-play that utmost important part of our history. So stop that! Take up your cross, and humble yourselves, so that the love of Christ may flow through you and be shown to the darkness within the world, that same darkness that is proclaiming both tolerance and discrimination of your people. 
 
 *Posted on January 24, 2021*
 
